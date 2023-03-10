@@ -38,4 +38,4 @@ Zenith stands out from other characters in the game due to his exceptional intel
 
 ## Bugs
 
-Zenith may struggle when encountering individuals who attack him without cause, putting him his defenses and withdrawing from the situation, and becoming easily distracted. Reassurance, comfort, and consistent follow-through are the best ways to address this issue.
+Zenith may struggle when encountering individuals who attack him without cause, putting him in his defenses and withdrawing from the situation, and becoming easily distracted. Reassurance, comfort, and consistent follow-through are the best ways to address this issue.
